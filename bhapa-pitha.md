@@ -1,1 +1,1 @@
-Gur lagbe 2 cup.
+Gur lagbe 1.5 cup.
